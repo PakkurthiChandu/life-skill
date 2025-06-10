@@ -2,7 +2,7 @@
 
 ## 1. Grit
 **Q1. Summary:**  
-Grit means sticking with your goals no matter what. It's about keep going even when things get tough, boring, or when you fail - for years if needed.
+Grit means sticking with your goals through challenges because passion and persistence matter more than natural talent.
 
 ## 2. Growth Mindset
 **Q2. Summary:**  
