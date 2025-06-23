@@ -1,4 +1,4 @@
-# Energy Management - Answers
+# Energy Management
 
 ## Question 1:
 **What are the activities you do that make you relax - Calm quadrant?**
